@@ -6,12 +6,8 @@
 
 <div align="left"> 
 
-<details>
-  
-<summary> more </summary>
-
-s
-
-</details>
+<a href="https://rentry.co/"><img src="https://file.garden/aXu6apkcPAJchg7L/IMG_5019.png"></a>
+<a href="https://rentry.co/"><img src="https://file.garden/aXu6apkcPAJchg7L/IMG_5018.png"></a>
+<a href="https://rentry.co/"><img src="https://file.garden/aXu6apkcPAJchg7L/IMG_5017.png"></a>
 
 <br>
