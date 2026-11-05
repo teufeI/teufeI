@@ -10,6 +10,6 @@
 
 　<a href="https://rentry.co/pavelski"><img src="https://file.garden/aXu6apkcPAJchg7L/IMG_5019.png" width="40"></a>⠀
 <a href="https://pavelski.straw.page"><img src="https://file.garden/aXu6apkcPAJchg7L/IMG_5018.png" width="40"></a>⠀
-<a href="https://./"><img src="https://file.garden/aXu6apkcPAJchg7L/IMG_5017.png" width="40"></a>
+<a href="https://teufel.atabook.org"><img src="https://file.garden/aXu6apkcPAJchg7L/IMG_5017.png" width="40"></a>
 
 <br>
